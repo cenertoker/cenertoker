@@ -1,4 +1,3 @@
-[![MasterHead]([https://imgyukle.com/i/rUko1h](https://www.hizliresim.com/rsm2ck9))
 <h1 align="center">Hi 👋, I'm Ceren Toker</h1>
 - 📫 How to reach me **cerentoker06@gmail.com**
 
